@@ -1,2 +1,2 @@
 # tommmaddd-resolusi
-Repositori untuk menyimpan rencana Tommmaddd kedepannya
+Repositori untuk menyimpan rencana Saya kedepannya
